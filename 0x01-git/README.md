@@ -1,1 +1,1 @@
-My first readme
+Enjoying the proocess to destiny #grit
